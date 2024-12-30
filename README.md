@@ -1,5 +1,6 @@
 # Hi 👋, I'm Sai Krishna Kwoshik Vleaga  
-### AI/ML Engineer 
+### AI/ML Engineer| Tech Enthusiast | Lifelong Learner
+ 
 
 ---
 
